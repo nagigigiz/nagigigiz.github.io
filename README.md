@@ -1,1 +1,0 @@
-# nagigigiz.github.io
